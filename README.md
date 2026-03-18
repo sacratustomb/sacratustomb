@@ -1,4 +1,4 @@
 <p align="center">
 huge wip!!
 <p align="center"> 
-  <img src="https://64.media.tumblr.com/034decfddf77ec7c873b660d87263cdd/9ed8365638271411-66/s100x200/6ce083378451037b56f7f92808249adbdf0c3665.gifv">
+  <img src="https://64.media.tumblr.com/98b4e09c05f6a8c68437ee4f6ef2ba25/e88cb0b009ee51ea-d0/s250x400/40e9d6ea5aab45fc9165b27bc75fc4385649a9c8.gifv">
